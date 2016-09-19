@@ -73,7 +73,7 @@ I'm glad to make friends with the people who persist in faith and follow their d
 
 Please let me know you are around.
 
-Google+: [+魔羯](https://plus.google.com/107460592910747948011)
+学习使用，侵权立删！
 
 
 
